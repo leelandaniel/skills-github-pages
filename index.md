@@ -17,10 +17,11 @@ Check out his newest releases:
 
 Follow Leeland Daniel on social media and streaming platforms:
 
-- [Instagram](https://instagram.com/leelanddaniel)
-- ["X"](https://twitter.com/leelandaniel)
+- [TikTok](https://tiktok.com/@leelandaniel)
+- [Instagram](https://instagram.com/leelandaniel)
+- [Twitter](https://twitter.com/leelandaniel)
 - [YouTube](https://youtube.com/@leelandaniel)
 
-For bookings and inquiries, contact [business@leelandaniel.com].
+For bookings and inquiries, contact [business@leelandaniel.com](mailto:business@leelandaniel.com).
 
 ---
